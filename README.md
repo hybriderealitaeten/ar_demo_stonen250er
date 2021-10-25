@@ -1,1 +1,0 @@
-# ar_demo_stonen250er
